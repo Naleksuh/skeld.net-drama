@@ -1,0 +1,1 @@
+### TL;DR: Arkatme scammed SilenceHD and decided to ban him (shaping it as "parting ways" with him).<br>I wasn't sure about it until I was tied to supporting him so I left the team temporarily.<br>The next day I was banned and basically every Staff and Former Staff decided to trash behind my back
